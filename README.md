@@ -1,2 +1,4 @@
 # new-Rep
-A new repository
+Hello!!! 
+
+I'm Ben and I like to play video games. How about you? Write your answers in the comments!!!
